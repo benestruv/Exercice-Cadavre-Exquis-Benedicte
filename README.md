@@ -4,7 +4,9 @@ Exercice du Cadavre Exquis
 Le petit chaperon rouge
 =======================
 
-Le petit chaperon rouge sortait de la boucherie, un sachet de tripes à la main. Quand **soudain**, 
+Le petit chaperon rouge sortait de la boucherie, un sachet de tripes à la main. Quand **soudain**,
+
+... alors qu'un terrible orage se déclara, un éclair tomba sur l'arbre le plus majestueux de la forêt, embrasant celle-ci...
 
 
 On prend des boîtes, on y range les gens qu'au fond jamais, jamais l'on ne comprend
