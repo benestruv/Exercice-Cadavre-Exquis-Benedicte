@@ -31,3 +31,7 @@ https://spinlyrics.com/song/matre-gims-la-meme-lyrics-3c8d
 >Et le bec, et le bec, et la tête, et la tête alouette,
 >
 >https://www.paroles-musique.com/eng/Comptine-Alouette-lyrics,p114351
+
+Il s'assit et commença à manger. Le petit canard avalait goulument, tant la pizza était délicieuse.
+Sa mère, outrée de voir son enfant manger avec si peu de manières, le gronda.
+> "Malappris ! Tu es un canard, cesse de manger comme un cochon !"  
