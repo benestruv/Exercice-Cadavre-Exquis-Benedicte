@@ -13,3 +13,13 @@ J'ai suivi mille chemins et serré dix mille mains
 On peut aimer Brel et Megui, aimer même nos ennemis
 
 https://spinlyrics.com/song/matre-gims-la-meme-lyrics-3c8d
+
+>Alouette, gentille alouette, alouette je te plumerai
+>Je te plumeras la tête, je te plumerais la tête
+>Et la tête, et la tête alouette, haaa
+>
+>Alouette, gentille alouette, alouette je te plumerai
+>Je te plumerai le bec, je te plumerais le bec
+>Et le bec, et le bec, et la tête, et la tête alouette,
+>
+>https://www.paroles-musique.com/eng/Comptine-Alouette-lyrics,p114351
